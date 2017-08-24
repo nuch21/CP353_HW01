@@ -1,2 +1,0 @@
-Kewali Multhonggag 57102011040
-Kewali Multhonggad 57102011040
